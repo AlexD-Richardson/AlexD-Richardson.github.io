@@ -1,1 +1,0 @@
-# AlexD-Richardson.github.io
